@@ -4,7 +4,7 @@
 
 [LinkedIn](https://www.linkedin.com/in/naderbensalah) · [Portfolio](https://naderite.pages.dev) · [Resume](./assets/Nader_Ben_Salah_Backend_Platform_EN.pdf) · [Email](mailto:nader.bensalah03@gmail.com)
 
-Based in Tunis, Tunisia · Interested in Europe-based opportunities and relocation
+Based in Tunis, Tunisia · Europe relocation
 
 ## What I do
 
